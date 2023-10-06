@@ -8,3 +8,4 @@
 #But figmenting that which is not touched or heard?
 #Though even when touched, tasted, heard, or smelled, we still see? Do we not?
 #So what are we? Truly?
+#But thingies, on a thingy
